@@ -19,7 +19,7 @@ Whimsical ward is NOT based on psyche ward in any way, it is based on one of the
 
 
 One of his friends harassed my friend's system origin(i'm not saying it, since posion took advantage of that aswell)
-one of his friends mocked her system trauma like its nothing.... So you telling me that you have "ableist dni" in your dni list then procress to enable your friends to harass my friend mental disorder, riddle me this; this reason why i supported my friend's system origin because i want to respect and treat my friend like a "brother who got your back" friendship dyamatic... [wip on this once again]
+one of his friends mocked her system trauma like its nothing.... So you telling me that you have "ableist dni" in your dni list then procress to enable your friends to harass my friend mental disorder, riddle me this; this reason why i supported my friend's system origin because i want to respect and treat my friend like a "brother who got your back" friendship dyamatic... yet you and your friends got her scared and worry. [wip, its  unfinished]
 - - - -
 Skipping from some weeks later, i was offtab and sitting with my oomf. I saw cool phighting skins i was watching them interacting with each other. I decided to give it a shot to play and have fun with them. After, i noticed that posion unfriended me and i finally blocked him in-sight, same with his friends. i was so tired and finally unmasked my anger at him in my github status. 
 
