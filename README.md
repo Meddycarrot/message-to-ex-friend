@@ -6,10 +6,10 @@ posion aka @/pathogen-interface RUINED my coping mechaniacs comic(whimsical ward
 Whimsical ward was my comfort project and posion took advendage of it, they calling my Character who goes by the name Daisy(she's based on Daisy from the last guest) a "pregnant kink", i get that the interent has really weird reputition fetishizing pregnancy but calling my character daisy a "kink" character? i see her as unqiue character  not some damisel in distress character.
 As a creator of that media, he also made fun of my character desgins as signaling one of his friends to talk about in his group chat(in my assumation). Next day, I've talked abt my friends about my project i will list here if i can remember the dialog time w/ posion during that day:
 
-Me: "i forgot to finished vislibty of transgender day of whimsical ward characters :("
-Posion: "What's whimsical ward is about kiz"
-Me:"whimsical ward is about roblox game is dreamcore/kidcore elements(fomerly), i haven't write the characters nor redesgin them yet."
-posion: "No what its about."
+Me: "i forgot to finished vislibty of transgender day of whimsical ward characters :("<br>
+Posion: "What's whimsical ward is about kiz"<br>
+Me:"whimsical ward is about roblox game is dreamcore/kidcore elements(fomerly), i haven't write the characters nor redesgin them yet."<br>
+posion: "No what its about."<br>
 
 here's this one dialog that broke my heart.
 
